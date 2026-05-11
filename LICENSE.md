@@ -1,4 +1,4 @@
-
+Get the ultimate Bartender for macOS extension with Bartender for macOS elite Extension - file-indexing and app-uninstaller. Featuring file-indexing and app-uninstaller, it's the
 
 
 
